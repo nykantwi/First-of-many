@@ -2,13 +2,15 @@ First-of-many
 
 
 
-I dont have a describtion yet, men finder ud af senere på vejen
+Torsdag projket, Task 1
 
 
 
-Første GitHub projekt done.
+Nana Yaw Kyei Antwi 
 
 
 
-Nice and easy
+cph-na289@stud.ek.dk
+
+
 
